@@ -11,3 +11,5 @@ include :becoming a girl,[for legal reasons can not say],[for family reasons suc
 corners of human expierience,other life goals that may range from hedonistic to generous from forgiving to revengful and from peacful to violent,making at least 100k USD a year and living in a third world country such as bali where everything is cheaper and living like a king/queen
 and thats about it (seriously to my family and other peers that might be worried about my mental health if you actually knew the extent of my goals becoming a girl would easily be the easiest and least far fetched of them all)
 but that all doesn't matter because we have always bet on hakari toca donka domain expansion and that is super mlg pogger skibidi sigma
+
+also a ten reel version
